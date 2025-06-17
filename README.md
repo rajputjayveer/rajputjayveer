@@ -1,4 +1,4 @@
-## Hii , i am jayveer💫 
+## Hii , I am Jayveer💫 
 
 🔭 I’m currently Pursuing B.tech cse <br/>
 
